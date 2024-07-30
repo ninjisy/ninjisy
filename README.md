@@ -1,4 +1,14 @@
-## Hi there 👋
+Hi! I'm NINJISY - you might know me from **bogcom** or the **PHIGHTING! Wiki**, where I am one of it's lead bureaucrats and in charge of a lot of the day-to-day and backend operations.
+
+I'm also a PF-DID system, and I like to play Ponytown just to live vicariously through my introjections.
+
+✦ Call me Nin, Ninji, or skin name
+✦ They/Them, Xe/Xer, She/Her or Shx/Hxr (Or pronouns in skin name)
+✦ Feminine > neutral language
+✦ Fine with touch, boops, hugs, crowns, whatever, unless skin name has TD in it
+✦ Our littles play Ponytown. If this bothers you, too bad!
+✦ Interaction, chat, roleplay, etc. friendly. Feel free to chat to me!
+✦ Banhammer lesbian real
 
 <!--
 **ninjisy/ninjisy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

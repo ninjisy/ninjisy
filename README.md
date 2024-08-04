@@ -5,7 +5,7 @@ I'm also a PF-DID system, and I like to play Ponytown just to live vicariously t
 - Call me Nin, Ninji, or skin name
 - They/Them, Xe/Xer, She/Her or Shx/Hxr (Or pronouns in skin name)
 - Feminine > neutral language
-- Fine with touch, boops, hugs, crowns, whatever, unless skin name has TD in it
+- Fine with touch, boops, hugs, crowns, whatever, **unless skin name has SYSKID or TD in it**
 - Our littles play Ponytown. If this bothers you, too bad!
 - Truly do not give one iota about 'doubles', feel free to say hi!
 - Interaction, chat, roleplay, etc. friendly. Feel free to chat to me!
